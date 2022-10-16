@@ -1,2 +1,0 @@
-gghgy
-fuu
